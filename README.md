@@ -1,4 +1,7 @@
 # pig_game
 
-Uploading Record_2024_09_07_22_31_31_62 (online-video-cutter.com).mp4…
+
+https://github.com/user-attachments/assets/31a2bf63-5c84-4e39-9ed2-6a96ce329bdc
+
+
 
